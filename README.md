@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @faisalridhomp
+- 👋 Hi,
 - 👀 I’m interested in 🐉
 - 🌱 I’m currently learninng 🐉
 - 💞️ I’m looking to collaborate on 🐉
